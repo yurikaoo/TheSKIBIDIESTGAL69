@@ -5,11 +5,11 @@
 
  DNI - True crime likers, Pedophiles, Darkshippers, Comshipper, Proshitters, Lolicon, etc. 
  
- I have autism, BPD, PTSD, I am mentally ill!!
+ I have autism,OSDD 1-A, BPD, PTSD, I am mentally ill!!
  
  ![1000009777](https://github.com/user-attachments/assets/8037b594-7e80-4dfd-b8ef-9d8073bbd29c)
 
- Pronouns - I'm Bigender, but go by he/they.
+ Pronouns - I'm Transmasc, go by he/they.
  
  Please don't vent to me unless close, I use to allow it, but it mentally exhausted me. 
  
